@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @SIRazizano
 - 👀 I’m interested in Math, Science ( Except Biology & Chemistry ), Computer Science & Editing ( Photos, Videos, Graphics & More )
-- 🌱 I’m currently learning What live Let Me Learn
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning What Life Let Me Learn
+- 💞️ I’m looking to collaborate on Someday Before I Die " I Expect "
 - 📫 How to reach me : 
       - Email: azizanoo93500965@gmail.com
       - Instagram: mohp33.lr6
