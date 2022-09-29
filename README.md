@@ -7,7 +7,7 @@
 - 📫 How to reach me : 
       - Email: azizanoo93500965@gmail.com
       - Instagram: mohp33.lr6
-      - Discord: ! SIR | عزيزانو#9701
+      - Discord: ! 𝑺𝑰𝑹 | JoyBoy#4820
 
 <!---
 SIRazizano/SIRazizano is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
