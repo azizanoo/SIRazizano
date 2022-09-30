@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SIRazizano
+
 - 👀 I’m interested in Math, Science ( Except Biology & Chemistry ), Computer Science & Editing ( Photos, Videos, Graphics & More ) and anything i can learn from live before i go where i would be far away from it
 - 🌱 I’m currently learning Web Development & Math
 - 💞️ I’m looking to find my second half of me on Someday Before I Die " I Hope So "
